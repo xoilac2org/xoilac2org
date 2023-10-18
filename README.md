@@ -1,16 +1,19 @@
-### Hi there 👋
+### Xoilac2 | Trực tiếp bóng đá Xoilac
 
-<!--
-**xoilac2org/xoilac2org** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Xoilac2.org là tên miền thuộc thương hiệu Xoilac TV. Đây là link chuẩn không quảng cáo khi xem bóng đá chất lượng cao
 
-Here are some ideas to get you started:
+- Địa chỉ: 88 Thanh Xuân, Ba Đình, Hà Nội, 100901, Việt Nam
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- SĐT: 0968984556
+
+Xoilac là nền tảng trực tuyến uy tín, mang lại cho người hâm mộ 1 phương pháp thuận tiện để theo dõi các trận chiến ham của mình trên Internet. Có giao diện gần gũi và phổ thông tính năng độc đáo, Xoilac 2 đã phát triển thành điểm tới bậc nhất cho những người đam mê bóng đá ở Việt Nam.
+
+https://xoilac2.org/
+
+https://vimeo.com/user209557840
+
+https://www.flickr.com/people/199336078@N05/
+
+https://gab.com/xoilac2org
+
+https://www.twitch.tv/xoilac2org
